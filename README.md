@@ -6,9 +6,9 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on prep for launching my first book 📗 *Gifts of Gratitude*, due out in March 2025
-- 🌱 I’m currently learning French and about GitHub repos
-- 👯 I’m looking to collaborate ways we can share generational wisdom and learn from each other 
-- 🤔 I’m looking for help with website design and branding 
-- 📫 How to reach me: jennifer.burchill@gmail.com
+- 🌱 I’m currently learning French
+- 👯 I’m looking to collaborate on ways we can share generational wisdom and learn from each other 
+- 🤔 I’m looking for help with website design and branding in prep for my book launch 
+- 📫 How to reach me: (jennifer.burchill@gmail.com
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: ...still thinking on this one...
